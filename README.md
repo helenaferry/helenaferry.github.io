@@ -1,3 +1,0 @@
-# helenaferry.github.io
-
-Platespotting!
